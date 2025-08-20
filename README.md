@@ -11,3 +11,5 @@ then i see u prolly like dec/jan/feb cuz of how slow things are
 so that makes some sense to me
 
 otherwise i dont get it
+
+i def see u this year then, bc why would u stop interacting with this page, that's been going on since ~ nov/dec 2018 bc i use to check if the grad skools i applied to were checking my github and i think they were
